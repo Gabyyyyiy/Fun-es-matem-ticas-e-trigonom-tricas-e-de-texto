@@ -1,1 +1,3 @@
-# Fun-es-matem-ticas-e-trigonom-tricas-e-de-texto
+Atividade realizada por:
+Gabriela da Silva Nunes
+Kauany Silva dos Santos
